@@ -36,4 +36,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/axiftaj)
+⭐️ From [mudakkirafridi](https://github.com/mudakkirafridi)
